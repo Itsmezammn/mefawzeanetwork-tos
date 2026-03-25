@@ -1,4 +1,4 @@
-Terms of Service – MefawzeaNetwork Bot
+Terms of Service – MefawzeaNetwork Bot II
 
 Dengan menggunakan MefawzeaNetwork, kamu setuju untuk mematuhi aturan Discord dan hukum yang berlaku. Bot ini hanya untuk hiburan dan fungsi komunitas, dan dilarang digunakan untuk spam, scam, atau kegiatan ilegal.
 
